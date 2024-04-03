@@ -11,6 +11,6 @@
 
  Sweet animals teach us valuable lessons about empathy, patience, and the importance of cherishing every moment with those we love. They provide us with companionship, comfort, and endless entertainment, making our lives richer and more fulfilling.In a world filled with chaos and uncertainty, sweet animals offer a sense of peace and tranquility. Whether it's snuggling up with a furry friend on a chilly evening or watching them playfully explore their surroundings, their presence brings a sense of calm and contentment to our lives. They remind us to slow down, appreciate the simple joys, and find beauty in the little things.Sweet animals also have a remarkable ability to forge connections between people, bringing communities together and fostering a sense of camaraderie. Whether it's through shared experiences at the dog park, bonding over stories of beloved pets, or coming together to support animal welfare causes, these furry companions have a way of uniting us in our love and admiration for them.In conclusion, sweet animals hold a special place in our hearts, enriching our lives in countless ways. Their innocence, playfulness, and unwavering love remind us of the beauty and goodness that exist in the world. Let us cherish and protect these precious creatures, ensuring that they continue to bring joy and inspiration to generations to come.
 
-**Enjo a moment with dog
+# Enjo a moment with dog
 
  ![living-with-dog](https://youtu.be/YbzXQESfbVg?feature=shared)
