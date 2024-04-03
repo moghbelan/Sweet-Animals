@@ -13,4 +13,4 @@
 
 # Enjo a moment with dog
 
- ![living-with-dog](<video controls src="my dogs morning routine.mp4" title="enjoing"></video>)
+ ![living-with-dog](<video controls src="my dogs morning routine.mp4" title="enjoing">living with dog</video>)
