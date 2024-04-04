@@ -7,7 +7,7 @@
 
 # sweet dog
 
-![Sweet-dog](closeup-of-a-black-russian-tsvetnaya-bolonka-royalty-free-image-1681161235.jpg)
+![sweet-dog](https://assets.iflscience.com/assets/articleNo/66797/aImg/64434/dog-l.webp)
 
 
 
@@ -15,4 +15,3 @@
 
 # Enjo a moment with dog
 
-[Sweet dog]: closeup-of-a-black-russian-tsvetnaya-bolonka-royalty-free-image-1681161235.jpg
