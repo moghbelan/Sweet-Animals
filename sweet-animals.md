@@ -7,7 +7,7 @@
 
 # sweet dog
 
-![Sweet dog](closeup-of-a-black-russian-tsvetnaya-bolonka-royalty-free-image-1681161235.jpg)
+![Sweet-dog](closeup-of-a-black-russian-tsvetnaya-bolonka-royalty-free-image-1681161235.jpg)
 
 
 
