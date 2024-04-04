@@ -15,7 +15,6 @@
 
 # Enjo a moment with dog
 
-![my-dog](https://youtu.be/YbzXQESfbVg?feature=shared)
 
 
 
