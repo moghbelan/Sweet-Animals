@@ -15,4 +15,3 @@
 
 # Enjo a moment with dog
 
-![enjoy](https://www.youtube.com/watch?v=YbzXQESfbVg)
