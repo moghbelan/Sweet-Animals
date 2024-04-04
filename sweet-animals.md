@@ -1,7 +1,7 @@
 # Feeling good
 # Good for lonly
 ![Dog-cat](https://ichef.bbci.co.uk/news/976/cpsprodpb/BAF5/production/_111516874_gettyimages-451627799-1.jpg)
-# Sweet animals,
+# Sweet animals
  Bring joy and warmth to our lives with their adorable antics and affectionate nature. From *playful* puppies and curious kittens to gentle rabbits and cuddly hamsters, *these creatures have a special way of melting our hearts and spreading happiness*. Whether it's the comforting purr of a cat, the excited wag of a dog's tail, or the gentle nuzzle of a rabbit's nose, sweet animals have an innate ability to brighten even the darkest of days.
  Their unconditional love and loyalty remind us of the importance of kindness and compassion in our lives.
 
